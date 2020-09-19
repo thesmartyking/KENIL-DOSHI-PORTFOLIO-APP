@@ -18,7 +18,7 @@ To Download this Signed Apk for the Android Device > 6.0 :- [**Download App From
 - Achievements &amp; Awards
 - Strengths
 - Hobbies
-- Thank you with feedback which sends mesaage directly to your number
+- Thank you with feedback which sends message directly to your number
 
 ---
 
